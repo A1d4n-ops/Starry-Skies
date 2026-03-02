@@ -9,4 +9,6 @@ Beyond the night
 The blinding light
 Didn't matter if it's for spite
 Didn't matter if I lost the drive
-
+Didn't matter if I couldn't fly
+I will soar above the highs 
+And will see the end- The Starry Skies
