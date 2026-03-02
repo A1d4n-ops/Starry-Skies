@@ -8,4 +8,5 @@ To stretch and reach
 Beyond the night
 The blinding light
 Didn't matter if it's for spite
-Didn't matter if 
+Didn't matter if I lost the drive
+
